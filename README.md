@@ -1,7 +1,7 @@
 ## 👋 Hi, I’m @Melissaeb (Melissa Elliston-Boyes)
 Pronouns: She/her
 
-I'm a full stack developer from New Zealand and living in Auckland. In a previous life, I was a mathematics and general subject teacher for high sschool and neurodivergent students.
+I'm a full stack developer from New Zealand and living in Auckland. In a previous life, I was a mathematics and general subject teacher for high school and neurodivergent students.
 
 Hiking and escape rooms are my favourite hobbies 🥾🧩 I speak Spanish and have an interest in psychology.
 
