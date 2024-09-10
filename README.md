@@ -11,4 +11,4 @@ I am passionate about helping people reach their potential and thrive as their a
 
 📫 How you can reach me :
 - Connect with me on [LinkedIn](https://www.linkedin.com/in/melissa-elliston-boyes-158259301/)
-- Email me at m.elliston-boyes@gmail.com
+- Email me at m.ellistonboyes@gmail.com
